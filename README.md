@@ -1,0 +1,1 @@
+# gas-assets-kanji
